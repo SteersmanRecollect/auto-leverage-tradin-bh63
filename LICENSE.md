@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with secure scalping bot for derivatives Module | take-profit + order-book-analysis, the #1 scalping bot for derivatives. Includes take-profit and
 
 
 
